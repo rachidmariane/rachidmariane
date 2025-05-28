@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @rachidmariane
 - 👀 I’m interested in Data,AI and ML Engeniring
 - 🌱 I’m currently learning Data science and project manager
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on
 - 📫 How to reach me discord @rachidmariane
 - 😄 Pronouns:
 - ⚡ Fun fact: 
